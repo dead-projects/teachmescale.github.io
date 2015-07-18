@@ -1,1 +1,0 @@
-# teachmescale.github.io
